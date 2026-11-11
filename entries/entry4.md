@@ -1,0 +1,5 @@
+Aaaaaand action! Acting is interesting. I wonder how it's done. Like, I wonder how those voice actors for TBBSIAL get into their character. It doesn't sound very easy to become another person, or to take on their form - at least for a little while. Shakespeare said something to the effect of never overstepping nature. I don't like Shakespeare, but he wrote a ton of plays, so maybe he has a point here. Acting is about being believable. It's about taking on the form of someone who you would believe to be real.
+
+So, what's the difference between reality and acting? It's just about whether you're genuine. An actor isn't really their character, but otherwise, their character should have the same behaviour as a real person. In that way, maybe acting is just creating a new reality - a temporary reality. It makes me think about other realities, other worlds - but Kat is more suited to think about metaphysical stuff like that than I am.
+
+Attempt took 16min:20s.

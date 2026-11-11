@@ -1,0 +1,9 @@
+another reason i have hated art was my clumsiness, my lack of form. style is what separates one artist from the next. style makes or breaks you. i remember one time when i was painting in middle school. i liked to paint among other types of art, but of course, i was never quite good at capturing the human form. my humans looked more like monsters, and i was bullied for it. now, one might even say that my art was still art, but if it were art, it were mediocre. others might claim that my works were in fact not art, because art ought to be perceptible in some form.
+
+take, for example, many flickers of paint on a page; or take, for example, a bunch of scribbles on a page. you would not call any of these art because you could not get some sort of shape, some sort of perceivable form out of it.
+
+or maybe that's not much the case. the case is that this art lacks skill.
+
+inasmuch as benjamin may claim that art has lost its enchantment, there is still a people's exceptional idea of art. and that people's idea of art is that, even though art may be seen everyday and may be worth next to nothing than just something pretty to stare at, art must be something which not everyone can produce at an original level. in other words, you could say it's the gate of the artisan. what separates the hobbyist from the artisan is skill. if something can be produced originally by anyone, then how can it be anything special? what we call art, we call special in some way. we don't just call it a collection of scribbles; we give it the title of art. and we give the creator the title of the artist. so, if you are a bad artist, you might as well not be an artist at all, at least if you take the people's definition.
+
+since it seemed that despite my best efforts, my painting hand would not improve, it would be natural to think that my painting would forever stay mediocre and that i would never produce true art. and so, i hated art.

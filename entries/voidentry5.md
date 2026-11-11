@@ -1,0 +1,9 @@
+if self-pity is one of my greatest weaknesses, then one of my greatest strengths is in analysis. when you spend your time in pity, you reflect - and it seems that reflection, if my hate of art has done anything, is something that i have refined quite well. reflection leads to analysis, and analysis is key to mathematics.
+
+i grew up in the american school system, where math was merely a calculation. it had none of its great qualities and all of its worst qualities - the boring qualities. it was as if the american school system was built to make people dislike math, to make them never seek that path for themselves.
+
+my family moved to italy sometime in my later years of high school, sometime after i vowed to never strive towards art again. it was in italy that i found my passion for mathematics, as it was there that i found better teachers. it was great to see that i was no longer forced to solve equations for no reason. it was great to see that i was being challenged to ask questions of a deeper quality: namely, why things are true.
+
+take, for instance, the distributive law for two binomials: (a+b)(c+d) = ac+ad+bc+bd. some teachers may tell you that this is simply true, but few teachers will ask you why this is true. and why it's true is the key. it's the key to unlocking higher levels of math, higher levels of technology, and higher levels of the good for society. that tiny problem contains an introduction to the true world of mathematics, the world that is not bound by your ability to paint the human form. it is a world of usefulness and depth. it has more richness and colour than my paintbrush ever showed me.
+
+it is my happy place.

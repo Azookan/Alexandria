@@ -1,0 +1,9 @@
+an artist's true hand is revealed not when they have everything, but when they have nothing - for if the artist had everything, then they would have no pressure in the act of creation. they would have no pressure which objects to their being, other than the eternal pressure which society brings. a true artist is one who, when brought to their lowest, will still admire and seek the creation of things, and not for money, but for the pursuit of beauty.
+
+would you believe that i was once a true artist? but i had the weight of nothingness falling onto my shoulders, and i stopped the craft. so, i never was a true artist, even though i tried to do it in my heart.
+
+we, in our culture, like to sometimes think of failure as simply necessary for growth, but i am struggling to see it. never have i felt more discouraged in the pursuit of beauty than when i had seen the truth of things put in front of me. i still remember the glazed sun shining down on me, a teenage me in a green coat and a black beret. why the black beret? i thought that was what artists wore. and in my naivety and excitement, i thought that my drawing was contest-worthy. it was clearly not, and it seemed that everyone tried their best to make that clear, with their giggles and jokes and mumbling. yes, maybe i have a bad hand, but... oh, but there were no excuses. even my art teacher gave contempt and said that not everyone was meant for art.
+
+and so, it is all the same; just as there are those not meant for math, and just as there are those not meant for the preparation of the academy, i was convinced that there are those who are not given the gift of art. there are those who do not deserve that gift, and it seemed that i was one of those people. no amount of tears or determination would change that fact.
+
+it was no wonder i grew to despise art. art rejected me. so, i turned to science.
