@@ -1,4 +1,3 @@
-Turn this into text
 A = {m,n,o,p} B = {1} L = {p1}
 
 Define f and g by the following input-outputs:

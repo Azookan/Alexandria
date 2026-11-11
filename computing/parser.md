@@ -1,6 +1,6 @@
 Parser is a last-resort program to strictly read files affected by type B corruption. We say that the corruption is of type B if Lentil is unable to recover it. Parser's methods are mutating, so it cannot be used on minorly corrupted files which Lentil can handle. As a protective measure, therefore, Parser prevents the user from reading files which are not of a type B corruption (such as files which are not corrupted to begin with, or files with type A corruption).
 
-Syntax usage: run parser on <filename>
+Syntax usage: run parser on \<filename\>
 
 Parser often returns output in the form of a grid pack. A grid pack is a grid with letters on one axis, numbers on another axis, and squares that are filled in with numbers. More formally, a grid pack is a 5-tuple (A, B, L, f, g) where:
 

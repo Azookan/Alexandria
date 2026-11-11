@@ -1,6 +1,6 @@
 Great work! Here's a bonus puzzle for you to complete.
 
-A = . B = 3. L = .
+A = {x,y}. B = {1,2,3}. L = {x1,y2,x3}.
 
 Define f and g by the following input-outputs:
 x -> is equal to Gem(3) + 1
@@ -14,7 +14,7 @@ This will be particularly useful if you convert to letters and unscramble to get
 
 "The last piece of the puzzle is key... it can work with the rest of the complex."
 
-- M. Craig
+\- M. Craig
 
 
 ### Answer
