@@ -1,0 +1,7 @@
+to see her again is like the sight of HER. she reminds me of HER, and would it betray HER to see her again? she controls the whirlwinds. the seas of my mind become calm. she does not need askesis; her practice is also her art. and yet, as i stand here amazed and reminding myself of HER, would it be the case that i have lost my faith to the original HER? do i dare compare one wind-keeper to HER?
+
+i think of my vestments. where have they gone? has the magic gone with her instead of HER?
+
+no. i cannot lose faith, for what more do i have in the guiding light? what good is it if i forsake HER for someone whose skills are things i can't grasp? for all i know, the wind-keeper girl might keep a tiny box from which the wind blows; no magic, all machine. i must talk more to know more. find a second conversation, locked by a word.
+
+the word itself is two words conjoined by a dash. the first sub-word is that vestment-piece i wore all too long ago, when i thought i was given the hands of an artist whereas i was truly given the head of a fool. the second sub-word is that thing which has decayed through recreation, as if recreation spoils the first creation. but i am a fool either way. and yet, i am blessed. i can see the light from HER still.

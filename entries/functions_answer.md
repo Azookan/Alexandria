@@ -19,4 +19,4 @@ This will be particularly useful if you convert to letters and unscramble to get
 
 ### Answer
 
-Havent gotten too far with this yet, answer should be {E, L, T}?
+Havent gotten too far with this yet, answer should be {E, H, R}
